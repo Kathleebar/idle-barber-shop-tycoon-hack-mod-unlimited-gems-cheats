@@ -1,2 +1,5 @@
-# idle-barber-shop-tycoon-hack-mod-unlimited-gems-cheats
-Idle Barber Shop Tycoon hack unlimited gems Cheats Mod tips that work
+# Idle Barber Shop Tycoon hack unlimited gems Cheats Mod tips that work
+
+Idle Barber Shop Tycoon hack unlimited gems Cheats Mod tips that work - You can get cash and points easily using Idle Barber Shop Tycoon cheats engine! Green money (also known as cash) and reputation points (also known as purple star) are two basic currencies in the game. You can finish hairstyle or beard shape according to the requirements of customers. You will need green dollars, also known as cash upgrade furniture items, such as chairs, new equipment or replacement equipment. Reputation point, also known as purple star, is a new hairstyle, beard style, new story unlocking, task, etc. to read the following tips to earn more income and idle hairdresser tycoon reputation point. Each customer will pay you cash and reputation points also known as Zixing. When you accumulate purple star or reputation point, you will unlock new hair styles, beard styles, stories, furniture items, etc., and ultimately, the business will be improved. The more gems you earn, the bigger your buisiness will be! So try to use hack mod apk as much as you can in Idle Barber Shop Tycoon.
+
+<a href="https://yintamod.xyz/idle-barber-shop-tycoon/">check now</a>
